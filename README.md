@@ -1,0 +1,1 @@
+# logeai72-lotte
